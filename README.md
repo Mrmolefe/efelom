@@ -4,7 +4,7 @@
 
 > **`ANTHONY_XD` GOAT XD BOT**
 
-## GET IN CONTACT WOTH THE OWNER
+## GET IN CONTACT WITH THE OWNER
   
 <a href="https://wa.me/27838820807/?text=ANTHONY_XD"> <img src="https://raw.githubusercontent.com/shizothetechie/database/main/icon/WhatsApp.png" width="13%"> </a>
   <a href="https://whatsapp.com/channel/0029VbAAiNb8fewpAk5gX70d"> <img src="https://raw.githubusercontent.com/shizothetechie/database/main/icon/WhatsApp.png" width="13%"> </a>
